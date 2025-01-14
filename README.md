@@ -50,7 +50,7 @@ Gambling involves financial risks. Always gamble responsibly and within your mea
 ## 🖤 Connect With Us
 
 - **Website**: [TetherCasinos.top](https://tethercasinos.top)
-- **Email**: [support@tethercasinos.top](mailto:support@tethercasinos.top)
+- **Email**: [info@tethercasinos.top](mailto:info@tethercasinos.top)
 - **Follow Us on Social Media**: *Coming Soon*
 
 ---
